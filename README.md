@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **Java, SpringBoot and Front End**
 
-- 💬 Ask me about **Vite, Java, Prroblem Solving**
+- 💬 Ask me about **Vite, Java, Problem Solving**
 
 - 📫 How to reach me **kadumulasatya@gmail.com**
 

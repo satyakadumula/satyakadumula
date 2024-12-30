@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **kadumulasatya@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1U-uWTufMmq4yUxFvsBT319OJnt1Iqpn_/view?usp=sharing](https://drive.google.com/file/d/1U-uWTufMmq4yUxFvsBT319OJnt1Iqpn_/view?usp=sharing)
+- 📄 Know about my experiences [[https://drive.google.com/file/d/1U-uWTufMmq4yUxFvsBT319OJnt1Iqpn_/view?usp=sharing](https://drive.google.com/file/d/1U-uWTufMmq4yUxFvsBT319OJnt1Iqpn_/view?usp=sharing](https://drive.google.com/file/d/1731Y-XWxAcS2EHzIVSxrUvBMNsqBQwPH/view?usp=sharing)]
 
 - ⚡ Fun fact **Sometimes I go deep into the subject and even forget if there's a celebrity beside me.**
 
